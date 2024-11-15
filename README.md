@@ -1,2 +1,4 @@
-[CV PROG - Guillermo Phelan.pdf](https://github.com/user-attachments/files/17295471/CV.PROG.-.Guillermo.Phelan.pdf)
-![Captura de pantalla (167)](https://github.com/user-attachments/assets/23ce0c87-0985-400b-bf1d-295b82430059)
+
+[Guillermo Phelan CV PROG.pdf](https://github.com/user-attachments/files/17780592/Guillermo.Phelan.CV.PROG.pdf)
+[CV PROG - G.Phelan - Eng.pdf](https://github.com/user-attachments/files/17780594/CV.PROG.-.G.Phelan.-.Eng.pdf)
+![Captura de pantalla (185)](https://github.com/user-attachments/assets/6be33cf2-429c-44fe-a57c-9f301f3ba231)
